@@ -1,1 +1,1 @@
-# Scratch
+# Welcome to Scratch
